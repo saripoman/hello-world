@@ -1,4 +1,4 @@
-# Product Manager & AI Learner 🚀
+# Product Manager & AI Enthusiast 🚀
 
 ## About Me
 Hi! I'm a passionate **Product Manager** with a deep interest in **Artificial Intelligence** and emerging technologies. I believe in the transformative power of AI to solve complex problems and create meaningful user experiences.
